@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @yurakharkiv
+- 👀 I’m interested in programs .bat and Python, and I also like to write all sorts of comic viruses and real viruses, but I prefer comic ones
